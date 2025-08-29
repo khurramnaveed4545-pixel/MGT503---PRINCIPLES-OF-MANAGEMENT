@@ -1,1 +1,1 @@
-# MGT503---PRINCIPLES-OF-MANAGEMENT
+# MGT503---Principal Of Management 
